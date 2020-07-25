@@ -16,3 +16,12 @@ Talking about Personal Stuffs:
 Languages and Tools:
 
 ![img](https://i.imgur.com/4UI6Qux.png)
+
+![img](https://i.imgur.com/OayrqWb.png)
+
+![img](https://i.imgur.com/Oha8LxR.png)
+
+![img](https://i.imgur.com/mfMShWT.png)
+
+
+
