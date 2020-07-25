@@ -15,4 +15,4 @@ Talking about Personal Stuffs:
 
 Languages and Tools:
 
-![img](https://png2.cleanpng.com/sh/7b068258c7365a7dd9982d1bc5bfdcfa/L0KzQYm3VsI6N5h2e5H0aYP2gLBuTfRwa5xqip91b3fyPbz8gvVzdpZ5feU2c3BphMjokvUubJZ1hNHEbXXxhH7sjvdqdpZqip91b3fyPYbpU8YyPpU8S6psOUG8PoW7VsYxP2U3Sac8MEK6QYW7V8I0OmcziNDw/kisspng-docker-logo-kubernetes-software-deployment-engineer-logo-5b3616d738c919.4466074215302714472326.png)
+![img](https://i.imgur.com/4UI6Qux.png)
